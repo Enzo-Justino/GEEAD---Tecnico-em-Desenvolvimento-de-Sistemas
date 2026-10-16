@@ -1,1 +1,1 @@
-# GEEAD---T-cnico-em-Desenvolvimento-de-Sistemas
+# GEEAD---Tecnico-em-Desenvolvimento-de-Sistemas
